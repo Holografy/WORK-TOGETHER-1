@@ -19,3 +19,5 @@ techno274721(OWNER); @Lotusninja400 plz contact me if u need help @KINGPROTOG in
 WORK ON PROJECTPLZ
 
 LOTUSNINJA:DONT TOUTCH SECURITY THATS FOR ME 😁
+
+Techno274721; It's inactive?
